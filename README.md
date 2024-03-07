@@ -1,1 +1,1 @@
-live link -- sealwordform.htm
+live link -- https://inyangdaniel.github.io/personalinformationform/
